@@ -29,4 +29,5 @@
 3. Интересные [места в Брянске](https://32q.ru/interesnye-mesta)
 4. Наш [телеграм-канал](https://tgstat.ru/channel/@rakyrs32)
 5. Пожалуйста ~~[не обращайте внимания](http://brw-mebel.ru/)~~
+6. (https://groups.google.com/g/rakurs32) - Наша группа в Гугл группах
 
